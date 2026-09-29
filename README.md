@@ -79,7 +79,7 @@ I'm always interested in collaborating with developers, designers, and businesse
 
 🔗 LinkedIn: https://www.linkedin.com/in/cofounder-ali-hunain/
 
-🌐 Company: Globe Marketo
+🌐 Company: Globe Marketo https://globemarketo.com/
 
 ---
 
